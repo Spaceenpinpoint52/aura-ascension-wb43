@@ -1,4 +1,4 @@
-#  
+#  Experience aura ascension like never before with aura ascension custom Scripts, the #1 Script. Includes teleport and god mode for unbeatable
 
 
 
